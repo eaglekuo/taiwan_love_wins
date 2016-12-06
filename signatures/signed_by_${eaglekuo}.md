@@ -1,1 +1,0 @@
-Marriage Equality & Love Wins
